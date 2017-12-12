@@ -1,1 +1,0 @@
-# teori-TCC10
